@@ -7,3 +7,5 @@ Good Morning .....!!!!
 how are you going today?
 
 i am fine thanks...!!
+
+are you joining the class today?
