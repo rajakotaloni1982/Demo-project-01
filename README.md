@@ -6,4 +6,4 @@ Good Morning .....!!!!
 
 how are you going today?
 
-i am fine thanks..........!!!
+i am fine thanks...!!
